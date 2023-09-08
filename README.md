@@ -1,5 +1,9 @@
 # Blooket_cheats
+These hacks are not working as of September 8th, 2023
+
+
 Blooket cheats not made by me. It was Made by Minesraft2. Go check him out.
+
 Click on the file (the only other file.
 
 It should say that the file is too big. View it raw.
